@@ -35,5 +35,3 @@ By the time symptoms are visible, the damage is often irreversible.
 
 - Smallholder farmers  
 - Rural and remote agricultural communities  
-
----
